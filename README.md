@@ -1,0 +1,1 @@
+Sam's journey became a story that spread through is town,inspiring others to pursue their own dreams,regardless of the challenges.He taught everyone that success is not only for the gifted or lucky,but for those who refuse to give up.Sam's life was a reminder that no dream is too big if you're willing to work hard,push past pain,and keep believing,even when others doubt you. 
